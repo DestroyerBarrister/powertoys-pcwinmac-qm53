@@ -1,4 +1,4 @@
-# 
+# Mis à jour PowerToys modules complémentaires pour Mac OS | Premium PowerToys modules complémentaires pour PC Windows. Avec analyse rapide et support des raccourcis — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
